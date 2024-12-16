@@ -1,0 +1,1 @@
+ika upat na jud unta dretsu2x nani
